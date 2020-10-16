@@ -11,4 +11,7 @@ Project for BAIS Professional Prep Seminar
 
 #### Take Care!
 
-**Have a Great Remainder of the Semester!**
+**Have a Great Remainder of the Semester By:**
+1. Washing Hands!
+2. Wearing a Mask!
+3. Attending Lectures!
