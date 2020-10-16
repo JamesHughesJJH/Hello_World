@@ -10,4 +10,5 @@ Project for BAIS Professional Prep Seminar
 *Through the Frank Center*
 
 #### Take Care!
+
 **Have a Great Remainder of the Semester!**
